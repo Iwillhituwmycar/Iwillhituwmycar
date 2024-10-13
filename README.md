@@ -1,0 +1,2 @@
+- 📫 How to reach me if you have any questions: sussylandbaka123@gmail.com (Literally the only way to contact me. I don't want someone's random a** calling my phone.)
+- 😄 Pronouns: he | him
